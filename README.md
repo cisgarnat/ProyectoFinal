@@ -8,7 +8,7 @@ Universidad Autónoma de Tamaulipas
 
 **Profesor: Muñoz Quinteros Dante**
 
-*Octavo semestre, año 2025* 
+*Noveno semestre, año 2025* 
 ---
 ## Integrantes
 
